@@ -1,2 +1,9 @@
-# telka
-just a list of names telka wright has used, because keeping track is bothersome, maybe more in the future idk
+- alan wright
+- alaric wright
+- alex wright
+- asland james
+- azidal mattison
+- sarah silas
+- tel wright
+- telka wright
+- telkyn wright
