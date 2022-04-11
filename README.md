@@ -1,11 +1,12 @@
-- alan wright
-- alaric wright
-- alex wright
-- alymexis mattison
-- asland james
-- azidal mattison
-- kyn wright
-- sarah silas
-- tel wright
+- [alan/al wright](https://www.facebook.com/al.wright.1276)
+- [alaric wright](https://www.facebook.com/profile.php?id=100014385616443)
+- [alex wright](https://www.facebook.com/profile.php?id=100043678742045)
+- [alex wright/the king of eden](https://www.facebook.com/dragonsage100)
+- [alymexis mattison/lex](https://www.facebook.com/profile.php?id=100012215379312)
+- [asland james](https://www.facebook.com/asland.james.9)
+- [azidal mattison](https://www.facebook.com/azidal.mattison)
+- [kyn wright/kynareth](https://www.facebook.com/kyn.wright.7)
+- [sarah silas/marc letroy](https://www.facebook.com/marc.letroy.98)
+- [tel wright/inuyo](https://www.facebook.com/tel.wright.39)
 - telka wright
 - telkyn wright
