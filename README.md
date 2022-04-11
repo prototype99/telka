@@ -12,3 +12,6 @@
 - [tel wright/inuyo](https://www.facebook.com/tel.wright.39)
 - telka wright
 - telkyn wright
+# sources
+https://www.facebook.com/jessi.hobbs.7777/posts/307751263609787
+https://www.facebook.com/shelby.salem.5/posts/199969898137105
