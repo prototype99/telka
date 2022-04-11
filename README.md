@@ -3,6 +3,7 @@
 - alex wright
 - asland james
 - azidal mattison
+- kyn wright
 - sarah silas
 - tel wright
 - telka wright
